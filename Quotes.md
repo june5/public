@@ -35,3 +35,8 @@ willing to enter it in a random place" John Rawls
 goal in and of itself. Money is like gas in the car—you need to pay attention 
 or you’ll end up on the side of the road—but a well-lived life is not a tour of 
 gas stations." Tim O’Reilly
+
+11. "Calm the stomach. Move the body. Rest the mind." Naval
+
+12. "Most people overestimate what they can do in one year and underestimate 
+what they can do in ten years." Bill Gates
