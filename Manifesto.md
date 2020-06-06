@@ -13,4 +13,4 @@
 11. Only drink socially and never to excess
 12. Contribute to your local community
 13. Be open and share
-14. Wabi-sabi, there is beauty in imperfection
+14. Embrace imperfection, Wabi-sabi
