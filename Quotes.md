@@ -1,6 +1,6 @@
 # Quotes
 
-1. "Go into the world and do well. But more importantly go into the world a do 
+1. "Go into the world and do well. But more importantly go into the world and do 
 good." Minor Myers Jr.
 
 2. "Never doubt that a small group of thoughtful, committed citizens can change 
